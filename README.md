@@ -6,7 +6,7 @@
 https://youtu.be/_OoKlE38nhs
 
 
-## Concept Video (4 minutes) (학교 정보 있습니다)
+## Concept Video (4 minutes)
 https://youtu.be/OcfUDD4Y_eo
 
 
